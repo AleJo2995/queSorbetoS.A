@@ -1,2 +1,2 @@
 # queSorbetoS.A
-Que Sorbeto SA
+Que Sorbeto S.A.
